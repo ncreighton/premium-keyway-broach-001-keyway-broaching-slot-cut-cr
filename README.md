@@ -1,0 +1,2 @@
+# premium-keyway-broach-001-keyway-broaching-slot-cut-cr
+Tired of scrambling through scattered notes and spreadsheets to track your keyway broaching specs and slot cut dimensions? The Keyway Broaching &amp; Slot Cut Craft Hub brings order to your workshop's chaos.  This Notion template centralizes every aspect of your broaching and slot cutting workflow—from job specs and tool inventory to tolerance charts a
